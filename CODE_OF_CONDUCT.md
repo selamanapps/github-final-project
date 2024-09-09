@@ -1,0 +1,10 @@
+# Contributor Covenant
+  Lorem ipsum odor amet, consectetuer adipiscing elit. Hendrerit mauris sem per platea blandit. Viverra eros felis cras nunc ex hac? Enim congue suscipit consequat platea senectus penatibus. Maximus elit consectetur vitae ligula curae convallis! Dis lobortis ex tempus dignissim, penatibus dignissim.
+
+Id sapien eget amet luctus taciti libero in. Elit aliquet magna velit accumsan rhoncus leo auctor. Mauris justo iaculis pellentesque gravida mus feugiat iaculis. Duis mi ultrices non elit scelerisque phasellus. Amet in neque himenaeos mattis nascetur est. Ex mus tellus integer; pellentesque vestibulum eu molestie netus. Vivamus accumsan efficitur fames morbi quam cubilia proin egestas est.
+
+Vel ad libero nullam ex nostra curabitur nunc gravida sociosqu. Convallis augue pellentesque feugiat litora efficitur tortor imperdiet habitant. Nascetur lacus sagittis eu torquent pharetra congue hac sed. Maximus enim rhoncus nisi erat iaculis. Et congue maecenas urna metus diam. Lectus dapibus platea nec ad tincidunt hendrerit elementum nullam tortor. Nostra netus auctor mollis aliquet consequat aenean curae egestas. Sem per iaculis hac tincidunt lacinia metus vel facilisi.
+
+Nullam vel efficitur conubia iaculis feugiat, pulvinar elementum. Ex pellentesque diam finibus ridiculus luctus elit tortor urna eleifend. Dapibus lobortis in arcu at litora non. Vivamus platea nisi est arcu curae. Venenatis vel amet pulvinar senectus diam ridiculus cursus nam. Auctor elit nullam accumsan vestibulum; maximus praesent.
+
+Tellus purus faucibus curae bibendum placerat augue. Pretium suspendisse et congue non integer consectetur turpis conubia imperdiet. Mattis maximus est pellentesque et purus ut nullam suspendisse cras. Vestibulum nullam neque vel venenatis nisi ex. Ornare posuere egestas convallis dignissim vivamus varius nullam. Cursus non platea at vivamus netus pellentesque dolor magna amet. Porttitor per gravida vivamus fusce taciti nisl pulvinar. Taciti nisi class urna sapien tristique sed feugiat lectus lobortis. Aliquam tellus volutpat netus, venenatis ultricies vivamus orci.
